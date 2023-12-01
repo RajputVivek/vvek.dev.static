@@ -1,0 +1,1 @@
+# vvek.dev.static
